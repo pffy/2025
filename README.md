@@ -6,5 +6,5 @@ In 2025:
   
   * Jeff Bezos returns as CEO of Amazon. ($AMZN)
   * Amazon buys Target. ($TGT)
-  * Taylor Swift and Paris Hilton form scrach-hop supergroup.
+  * [Taylor Swift](https://x.com/taylorswift13) and Paris Hilton form scrach-hop supergroup.
   * 
