@@ -9,7 +9,9 @@ In 2025:
   * [Taylor Swift](https://x.com/taylorswift13) and Paris Hilton create a new scratch-hop supergroup.
   * Luigi Mangione is granted a full pardon.
   * Elon Musk awarded mineral rights on the Moon.
-  * CBS 60 Minutes television show airs a Vox Media takeover episode, featuring Vergecast and Pivot.
+  * CBS 60 Minutes television show airs a Vox Media takeover episode, featuring The Vergecast and Pivot.
+  * 
+    
 
 
 [a_tgt]: https://finance.yahoo.com/quote/TGT
