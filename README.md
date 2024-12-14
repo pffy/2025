@@ -6,7 +6,7 @@ In 2025:
   
   * Jeff Bezos returns as CEO of Amazon. ([$AMZN][a_amzn])
   * Amazon buys Target. ([$TGT][a_tgt])
-  * [Taylor Swift](https://x.com/taylorswift13) and Paris Hilton create a new scrach-hop supergroup.
+  * [Taylor Swift](https://x.com/taylorswift13) and Paris Hilton create a new scratch-hop supergroup.
   * Luigi Mangione is granted a full pardon.
   * 
 
