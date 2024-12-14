@@ -10,7 +10,7 @@ In 2025:
   * Luigi Mangione is granted a full pardon.
   * Elon Musk awarded mineral rights on the Moon.
   * CBS 60 Minutes television show airs a Vox Media takeover episode, featuring The Vergecast and Pivot.
-  * 
+  * Open AI changes domicile to France in exchange for subsidized access to energy grid. 
     
 
 
